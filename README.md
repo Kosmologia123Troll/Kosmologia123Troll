@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kosmologia123Troll
-- 👀 I’m interested in ... CiberSecurity, Programming, engineering ... chess....
+- 👀 I’m interested in ... CiberSecurity, Programming, Engineering ... Chess ... Music ...
 - 🌱 I’m currently learning ... all the things
 - 💞️ I’m looking to collaborate on ... all
 - 📫 How to reach me ... for here
